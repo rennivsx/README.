@@ -1,6 +1,7 @@
 
 <img width="511" height="112" alt="image" src="https://github.com/user-attachments/assets/592bb193-bebe-4495-8f90-a69ab5b365e1" />
-<img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/f6ad639f-275b-438f-b3a7-497510cd969c" />
+<img width="713" height="354" alt="image" src="https://github.com/user-attachments/assets/2e862f17-e695-4efb-b1f8-2ee0e7085b2e" />
+
 
 
 its so freaking messy in here idc 
