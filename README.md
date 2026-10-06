@@ -8,6 +8,8 @@ its so freaking messy in here idc
 
     
 💝’ed[strᥲw](https://lowkeynerdxd.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/yujisito)◝✩[sρotιfყ ρᥣᥲყᥣιst](https://open.spotify.com/playlist/6tUwqMk967MJnAnoeqJK36?si=RpxGcWQFSOiKMuqS3tQ8ug&utm_source=copy-link&pi=cbnaofZ-SdOTW)
+<img width="1280" height="150" alt="image" src="https://github.com/user-attachments/assets/c6eff678-b35e-498d-8cbb-7d756b8f64d6" />
+
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/97c69f01-b0c2-4843-9573-e661430f7e22" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2671c793-6326-48c4-b393-cd2bc27a2f65" /> <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/05976486-acd4-4e40-a078-d38805f476b6" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/18a2c582-88d6-4c87-bedb-15e94f509593" />
