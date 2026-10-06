@@ -24,20 +24,9 @@ its so freaking messy in here idc
  <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/a2b4f11f-78ed-45a6-a615-a68e57e95cc7" /><img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/939b59e6-edfd-4ff8-abe3-d6469ffae847" /><img width="100" height="56" alt="image" src="https://github.com/user-attachments/assets/bb820152-3ec2-4709-baac-f28d8df40dc3" /> <img width="100" height="63" alt="image" src="https://github.com/user-attachments/assets/81ff644e-d72a-42f3-9fdc-f0e08453cc94" /> <img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/ec8df205-8514-4189-b557-3469b2978661" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3d0ab38b-56e1-47e9-9cf2-376162fd672a" /> <img width="100" height="58" alt="image" src="https://github.com/user-attachments/assets/486df5c7-0f2c-48c1-9583-9be9c5cb522d" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/53664e62-7de0-4a96-8e3a-aa4d168cb448" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e5f3fae3-d0f5-4236-8cb1-87c12d47a1c4" />
 
  <img width="250" height="150" alt="image" src="https://github.com/user-attachments/assets/b53e9025-fe88-4fa6-9bfe-6095947e23a7" /> yare yare
-<img width="1199" height="678" alt="image" src="https://github.com/user-attachments/assets/ac130278-4f70-42f9-9411-beff297ec8ad" /> why dis stamp so fat
+<img width="1199" height="678" alt="image" src="https://github.com/user-attachments/assets/ac130278-4f70-42f9-9411-beff297ec8ad" /> fat stamp
 
-
-
-
-
-
-
-
-
-
-<img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/1131122d-ae64-40e4-94a1-16fbab60ab42" />
-m
-
+<img width="1079" height="1261" alt="image" src="https://github.com/user-attachments/assets/5ceb3e36-a4d4-4b66-b380-5c9a8a12b9d0" />help
 
 
 
