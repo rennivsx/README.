@@ -9,8 +9,7 @@
     
 💝’ed[strᥲw](https://lowkeynerdxd.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/yujisito)◝✩[sρotιfყ ρᥣᥲყᥣιst](https://open.spotify.com/playlist/6tUwqMk967MJnAnoeqJK36?si=RpxGcWQFSOiKMuqS3tQ8ug&utm_source=copy-link&pi=cbnaofZ-SdOTW)
 
-
-<summary><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/97c69f01-b0c2-4843-9573-e661430f7e22" />
+<details><summary>blinkies</summary><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/97c69f01-b0c2-4843-9573-e661430f7e22" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2671c793-6326-48c4-b393-cd2bc27a2f65" /> <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/05976486-acd4-4e40-a078-d38805f476b6" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/18a2c582-88d6-4c87-bedb-15e94f509593" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/39e2116a-daf1-4ce6-90e0-af03828f8305" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e5379689-f4ce-4ec6-815b-2564428586e0" />
@@ -24,11 +23,4 @@
 
  <img width="250" height="150" alt="image" src="https://github.com/user-attachments/assets/b53e9025-fe88-4fa6-9bfe-6095947e23a7" /> yare yare
 <img width="1199" height="678" alt="image" src="https://github.com/user-attachments/assets/ac130278-4f70-42f9-9411-beff297ec8ad" /> fat stamp</summary>
-
-
-
-
-
-  
-
-
+</details>
