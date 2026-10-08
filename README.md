@@ -1,6 +1,7 @@
 
 <img width="511" height="112" alt="image" src="https://github.com/user-attachments/assets/592bb193-bebe-4495-8f90-a69ab5b365e1" />
-<img width="1199" height="771" alt="image" src="https://github.com/user-attachments/assets/23817ec3-972e-494a-8b5e-22993b2434ff" />
+<img width="713" height="354" alt="image" src="https://github.com/user-attachments/assets/8866b99e-bd8f-4ae0-9ccb-31c7337dc298" />
+
 
 
 
