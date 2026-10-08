@@ -5,8 +5,6 @@
 
 
 
-its so freaking messy in here idc 
-<img width="530" height="30" alt="image" src="https://github.com/user-attachments/assets/8bc13243-9a48-454c-918a-0e6e624affba" />
 
     
 💝’ed[strᥲw](https://lowkeynerdxd.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/yujisito)◝✩[sρotιfყ ρᥣᥲყᥣιst](https://open.spotify.com/playlist/6tUwqMk967MJnAnoeqJK36?si=RpxGcWQFSOiKMuqS3tQ8ug&utm_source=copy-link&pi=cbnaofZ-SdOTW)
