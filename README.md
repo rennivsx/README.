@@ -15,7 +15,10 @@
     
 💝’ed[strᥲw](https://lowkeynerdxd.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/v4mpksses)◝✩[sρotιfყ ρᥣᥲყᥣιst](https://open.spotify.com/playlist/3Sbb5dMbBxZ7hbi3ZAGVHl?si=MTvkQ_vyROuQb9gmIXXsAA&utm_source=copy-link&pt=4ab66aab6d4f31d7c60884287f985e16&pi=nQRy0FjnQuG0-)
 
-<details>   <summary> ︵︵blinkies and stamps!!</p></summary><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/97c69f01-b0c2-4843-9573-e661430f7e22" />
+<details>   <summary> ︵︵blinkies and stamps!!</p></summary><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/791e1607-415b-4186-be8e-17d070253f1e" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d7bcac59-5fd6-4507-85c7-44fcbd4bd910" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/da121900-e082-4f88-ab99-ea0bc249b817" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/97c69f01-b0c2-4843-9573-e661430f7e22" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2671c793-6326-48c4-b393-cd2bc27a2f65" /> <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/05976486-acd4-4e40-a078-d38805f476b6" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/18a2c582-88d6-4c87-bedb-15e94f509593" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/39e2116a-daf1-4ce6-90e0-af03828f8305" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e5379689-f4ce-4ec6-815b-2564428586e0" />
