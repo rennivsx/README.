@@ -46,4 +46,3 @@
 </details>
 <img width="540" height="38" alt="image" src="https://github.com/user-attachments/assets/dbf59dee-ca87-4ae5-b7c3-89bc0acd5b3b" />
 
-My name is Craig Tucker. Last week was my birthday. My grandma gave me a check for $100. I was so happy. But then, four kids from my school came to my house and said I should use my $100 to invest in becoming a Peruvian Flute band. They promised I would double my money in one afternoon. But the government arrested us along with all the other Peruvian flute bands, and took us to an internment camp in Miami. We begged to go home, but instead, the government told us they were sending us to Peru. And so, that is why I am now in Peru. If I die, let it be known that it is because 4 guys I dont even like from school lied to me and took my birthday money.😡😡🖕🏻
