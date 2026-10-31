@@ -46,4 +46,7 @@
 </details>
 <details>   <summary> ︵︵byi </p></summary>
 im 15 years old and my mbti is isfp.I go by any prns except it/its im bisexual.I mirror ur actions,if ur dry ill be the same.Not trying to be rude promise-
-I enjoy being around my friends<3 i dont rly like being left out.My hobbies are drawing listening to songs i like and watching south park,animes n stuff.Feel free to int with me ok:D<img width="540" height="38" alt="image" src="https://github.com/user-attachments/assets/dbf59dee-ca87-4ae5-b7c3-89bc0acd5b3b" />
+I enjoy being around my friends<3 i dont rly like being left out.My hobbies are drawing listening to songs i like and watching south park,animes n stuff.Feel free to int with me ok:D</summary>
+</details>
+    
+<img width="540" height="38" alt="image" src="https://github.com/user-attachments/assets/dbf59dee-ca87-4ae5-b7c3-89bc0acd5b3b" />
